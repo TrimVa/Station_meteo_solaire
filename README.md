@@ -42,6 +42,12 @@ https://a.aliexpress.com/_uGd2ut
 Bras de support
 https://a.aliexpress.com/_uHp0Iz
 
+Pluviomètre
+https://a.aliexpress.com/_vsTha9
+
+Ensemble Girouette/Anémomètre/Pluviomètre
+https://a.aliexpress.com/_ujzXzx
+
 Capteurs Lux
 https://a.aliexpress.com/_uGjaOH
 
